@@ -4,12 +4,12 @@
 $5$ cups flour  
 $2$ teaspoons baking soda  
 $3$ teaspoons salt  
-
+\
 $2$ cups shortening  
 $1 \frac 12$ cups granulated sugar  
 $1 \frac 12$ cups brown sugar, packed  
 $1$ tablespoon vanilla extract  
-
+\
 $4$ eggs  
 $1 \frac 12$ packages semisweet chocolate chips (18 ounces)  
 

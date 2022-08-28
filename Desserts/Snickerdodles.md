@@ -7,11 +7,11 @@ $1$ cup shortening (part butter or margarine)
 $1 \frac 12$ cups sugar  
 $2$ eggs  
 $2 \frac 34$ cups Gold Medal Flour  
-
+\
 $2$ teaspoons cream of tartar  
 $1$ teaspoon soda  
 $\frac 14$ teaspoon salt  
-
+\
 $2$ tablespoons sugar  
 $2$ teaspoon cinnamon  
 

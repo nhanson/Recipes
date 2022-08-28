@@ -6,11 +6,11 @@ $4$ squares unsweetened chocolate (4 oz.), melted
 $2$ cups granulated sugar  
 $4$ eggs  
 $2$ teaspoons vanilla  
-
+\
 $2$ cups Gold Medal Flour  
 $2$ teaspoons baking powder  
 $\frac 12$ teaspoon salt  
-
+\
 $1$ cup confectioners' sugar  
 
 ## Instructions

@@ -4,12 +4,12 @@
 $\frac 14$ Lb (6 slices) Bacon - chopped and browned  
 $1$ Lb hamburger - browned  
 $1$ medium onion - chopped and browned  
-
+\
 $2$ tablespoons vinegar  
 $\frac 34$ cup catsup  
 $\frac 34$ cup brown sugar  
 $1$ tablespoon prepared mustard  
-
+\
 $1$ 28oz can Van Camps Pork & Beans - do not drain  
 $1$ 15oz can Kidney Beans - drained and rinsed  
 $1$ 15oz can Butter Beans - drained a rinsed  

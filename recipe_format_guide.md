@@ -6,16 +6,20 @@
 ## Ingredients
 $x$ Ingredient a  
 $\frac xy$ Ingredient b  
-<!-- separation between ingredients -->
+\
 $x$ to $y$ Ingredient c  
+
 #### Sub ingredients
 Ingredient d  
+
 
 ## Instructions
 Instruction a  
 Oven to ___&deg;  
+
 #### Sub instructions
 Instruction b  
+
 ### Alt instructions
 Instruction c  
 
