@@ -1,4 +1,4 @@
-# Chocolate Chip Cookies
+# Ultimate Chocolate Chip Cookies
 *by Crisco*
 
 ## Ingredients

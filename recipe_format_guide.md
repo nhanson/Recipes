@@ -1,4 +1,4 @@
-# Recipe
+# Recipe Name in Title Case
 
 *The author/source*  
 *This is some info/history*  
@@ -8,7 +8,7 @@ $x$ Ingredient a
 $\frac xy$ Ingredient b  
 \
 $x$ to $y$ Ingredient c  
-
+<!-- TODO: standardize ingredient measurement abbreviations -->
 #### Sub ingredients
 Ingredient d  
 
