@@ -6,11 +6,11 @@
 *If you could have only one pie dough in your repertoire (heaven forbid), it would have to be this one, the classic dough that earns blue ribbons at county fairs and stars at esteemed pastry shops. The mix of butter and shortening guarantees that the dough will be flaky, flavorful, and tender. You can use this dough to make any kind of pie or tart, sweet or savory, plain or fancy. It is easy to roll and crimp and is made quickly by hand, in a mixer, or food processor. The recipe is large and can be cut in half or even quartered, but since the dough can be frozen for up to a month, it's practical to make the full batch. You can freeze the dough in disks, rolled out in circles, or already fitted into pie pans or tart molds, ready to go into the oven-without thawing-when you're in a crunch for a crust.*  
 
 ## Ingredients
-5 1/4 cups pastry flour or all-purpose flour  
-1 tablespoon kosher salt  
-1 1/2 sticks (6 ounces) cold unsalted butter, cut into small pieces  
-1 3/4 cups (11 ounces) solid vegetable shortening, chilled  
-1 cup ice water  
+$5 \frac 14$ cups pastry flour or all-purpose flour  
+$1$ tablespoon kosher salt  
+$1 \frac 12$ sticks (6 ounces) cold unsalted butter, cut into small pieces  
+$1 \frac 34$ cups (11 ounces) solid vegetable shortening, chilled  
+$1$ cup ice water  
 
 ## Instructions
 ### TO MAKE THE DOUGH BY HAND:

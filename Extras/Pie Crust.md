@@ -2,10 +2,10 @@
 *by Crisco*
 
 ## Ingredients
-2 cups all-purpose flour  
-1 teaspoon salt  
-3/4 cup well-chilled Crisco All-Vegetable Shortening  
-4 to 8 tablespoons ice cold water  
+$2$ cups all-purpose flour  
+$1$ teaspoon salt  
+$\frac 34$ cup well-chilled Crisco All-Vegetable Shortening  
+$4$ to $8$ tablespoons ice cold water  
 
 ## Instructions
 BLEND flour and salt in large bowl.  
