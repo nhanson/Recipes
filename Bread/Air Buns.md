@@ -6,7 +6,7 @@
 ## Ingredients
 $1$ pkg yeast  
 $1$ tsp sugar  
-$2$ cups warm water (105 to 115&deg;)  
+$\frac 12$ cups warm water (105 to 115&deg;)  
 \
 $\frac 12$ cup Crisco oil  
 $4$ eggs  
@@ -15,13 +15,14 @@ $\frac 34$ cup sugar
 $2 \frac 12$ cups warm water (105 to 115&deg;)  
 $1$ cup all-purpose flour  
 \
-$10$ cups all-purpose flour (*maybe more*)  
+$10$ cups all-purpose flour  
 
 ## Instructions
 Mix yeast, 1 tsp sugar, 2 cups warm water and let sit ~~12 minutes~~ just till it starts to foam    
 Beat together Crisco, eggs, salt, 3/4 cup sugar, 2 1/2 cups warm water and 1 cup flour  
-Blend in yeast mixture  
-In a separate bowl, add 10 cups flour to yeast mixture, 1 cup at a time. *maybe more - till dough is not sticky, just barely. This makes stiff dough*  
+Blend in above mixture to yeast mixture  
+In a separate bowl, measure out 10 cups flour *maybe more - till dough is not sticky, just barely.*  
+Add to to yeast mixture, 1 cup at a time. *This makes stiff dough*  
 Let rise 1 hr; punch down  
 Let rise 1 hr; punch down  
 Let rise 1 hr; punch down  
