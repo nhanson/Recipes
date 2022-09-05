@@ -16,11 +16,11 @@ $1$ 15oz can Butter Beans - drained a rinsed
 $1$ 15oz can Great Northern Beans - drained and rinsed  
 
 
-Brown the bacon, hamburger and onion together
-Drain well on paper towels
-Mix vinegar, catsup, brown sugar and mustard together
-Now add all ingredients together, with 1 cup water.
-Cover and bake at 350 degrees till very hot - 1 1/2 hours.
+Brown the bacon, hamburger and onion together.  
+Drain well on paper towels.  
+Mix vinegar, catsup, brown sugar and mustard together.  
+Now add all ingredients together, with 1 cup water.  
+Cover and bake at 350 degrees till very hot - 1 1/2 hours.  
 
 *Note:*  
 *You might want to double this - goes fast.*
