@@ -17,7 +17,7 @@ $1$ cup confectioners' sugar
 Mix oil, chocolate, and granulated sugar.  
 Blend in one egg at a time until well mixed.  
 Add vanilla.  
-Measure four by dipping method *(p.5)* or by sifting.  
+Measure flour by dipping method *(p.5)* or by sifting.  
 Stir flour, baking powder, and salt into oil mixture.  
 Chill several hours or overnight.  
 
