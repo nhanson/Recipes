@@ -41,7 +41,7 @@ Bake until golden, about 45 minutes.
 Remove and allow to cool on a rack.  
 
 *Note:*  
-*The only thing I do diffrent is add&frac14; whole wheat flour with the wheat germ.*  
+*The only thing I do diffrent is add &frac14; whole wheat flour with the wheat germ.*  
 
 *Total time: About 4 hours.*  
 *Each serving: 158 calories; 5 grams protein: 33 grams carbohydrates; 2 grams fiber, 1 gram fat; O saturated fat; O cholesterol; 211 milligrams sodium.*  

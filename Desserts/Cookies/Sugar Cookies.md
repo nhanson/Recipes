@@ -1,6 +1,6 @@
 # Light-as-Air Sugar Cookies
 
-*Light, airy, and crunchy are the three adjectives that spring to mind when you first bite into these tender cookies. The combination of vanilla and almond extracts gives them a subtle, sophisticated flavor. Note that&frac14; teaspoon almond extract lends the merest hint of almond to these cookies. If you're someone who just can't get enough of that almond flavor, increase it to&frac12; (or even&frac34;) teaspoon.*
+*Light, airy, and crunchy are the three adjectives that spring to mind when you first bite into these tender cookies. The combination of vanilla and almond extracts gives them a subtle, sophisticated flavor. Note that &frac14; teaspoon almond extract lends the merest hint of almond to these cookies. If you're someone who just can't get enough of that almond flavor, increase it to &frac12; (or even &frac34;) teaspoon.*
 
 ## Ingredients
 &frac12; cup (2 ounces) confectioners' sugar  
@@ -9,7 +9,7 @@
 &frac12; cup (3.5 ounces) vegetable oil  
 1 large egg  
 1 teaspoon vanilla extract  
-&frac14; to&frac12; teaspoon almond extract  
+&frac14; to &frac12; teaspoon almond extract  
 &frac12; teaspoon salt  
 2 teaspoons baking powder  
 2&frac12; cups (10.5 ounces) unbleached all-purpose flour  

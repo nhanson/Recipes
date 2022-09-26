@@ -4,7 +4,7 @@
 
 ## Ingredients
 4 cups sliced tart apples (about 4 medium)  
-&frac23; to&frac34; cup packed brown sugar  
+&frac23; to &frac34; cup packed brown sugar  
 &frac12; cup all-purpose flour - *Self-rising flour can be used in this recipe*  
 &frac12; cup oats  
 &frac13; cup margarine or butter, softened  

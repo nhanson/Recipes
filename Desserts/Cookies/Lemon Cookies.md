@@ -14,7 +14,7 @@
 #### Frosting
 &frac13; cup butter, room temperature  
 1 teaspoon lemon zest  
-&frac13; to&frac12; cup fresh lemon juice  
+&frac13; to &frac12; cup fresh lemon juice  
 4 cups powdered sugar  
 
 ## Instructions

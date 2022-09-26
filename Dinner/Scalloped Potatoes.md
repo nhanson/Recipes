@@ -1,7 +1,7 @@
 ## Scalloped Potatoes
 
 ## Ingredients
-Par boiled potatoes (skins on or off, sliced about&frac18;” thick)  
+Par boiled potatoes (skins on or off, sliced about &frac18;" thick)  
 6 Tablespoons butter  
 6 Tablespoons flour  
 &frac14; teaspoon pepper  

@@ -32,7 +32,7 @@ Serve warm or cool.
 
 *Notes:*  
 *I always double this so I have 18 rolls (two 9x13 pans):*
-*8 to 9 cups flour, 2 pkgs yeast, 2 cups milk,&frac23; cup sugar,&frac23; cup butter, 1 teaspoon salt, 4 eggs*
+*8 to 9 cups flour, 2 pkgs yeast, 2 cups milk, &frac23; cup sugar, &frac23; cup butter, 1 teaspoon salt, 4 eggs*
 
 <!-- melt leftover sticks of butter
 melt for covering
