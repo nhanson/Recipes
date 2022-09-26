@@ -21,4 +21,4 @@ Decrease water to &frac14; cup.
 Place all ingredients in 2-quart microwavable casserole.  
 Cover tightly and microwave on high 10 to 12 minutes, stirring and breaking up apples every 3 minutes, until apples are soft.  
 
-### *Makes 6 servings (about&frac12; cup each)*
+### *Makes 6 servings (about &frac12; cup each)*
