@@ -4,16 +4,16 @@
 *- Ginger Johnston*
 
 ## Ingredients
-$5$ cups all-purpose flour  
-$1$ teaspoon salt  
-$1$ tablespoon baking soda  
-$2$ teaspoons baking powder  
-$1 \frac 12$ cups vegetable shortening  
-$1$ 18-ounce jar creamy peanut butter (generous 2 cups)  
-$2 \frac 12$ cups granulated sugar (divided)  
-$2$ cups firmly packed dark brown sugar  
-$4$ eggs, beaten  
-$4$ teaspoons vanilla  
+5 cups all-purpose flour  
+1 teaspoon salt  
+1 tablespoon baking soda  
+2 teaspoons baking powder  
+1&frac12; cups vegetable shortening  
+1 18-ounce jar creamy peanut butter (generous 2 cups)  
+2&frac12; cups granulated sugar (divided)  
+2 cups firmly packed dark brown sugar  
+4 eggs, beaten  
+4 teaspoons vanilla  
 
 ## Instructions
 Preheat the oven to 375&deg;.
@@ -22,8 +22,8 @@ In a mixer bowl, beat the shortening briefly, then gradually beat in the peanut 
 Add the beaten eggs a bit at a time, then add the vanilla.  
 Gradually add the flour mixture and incorporate thoroughly.  
 The batter will be very crumbly, but not to worry.  
-Place the remaining 1/2 cup granulated sugar in a small bowl.  
-Use a 1/2-inch cookie scoop or a heaping tablespoon to make balls of batter, lightly roll each cookie in the sugar.  
+Place the remaining &frac12; cup granulated sugar in a small bowl.  
+Use a &frac12;-inch cookie scoop or a heaping tablespoon to make balls of batter, lightly roll each cookie in the sugar.  
 Transfer the cookies to an ungreased cookie sheet.  
 With a fork, press each cookie down a bit in a crisscross pattern to flatten.  
 Bake for 10 to 11 minutes or until brown.  

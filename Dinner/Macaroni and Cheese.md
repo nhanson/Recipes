@@ -1,15 +1,15 @@
 # Macaroni and Cheese
 
 ## Ingredients
-$5$ cups dry elbow macaroni  
-$6$ Tablespoons butter  
-$6$ Tablespoons flour  
-$\frac 14$ teaspoon pepper  
-$7 \frac 12$ cups milk (I use whole)  
-$10$ cups shredded cheddar cheese (I use medium)  
-\
-$2$ packages saltine crackers  
-$1$ stick of butter  
+5 cups dry elbow macaroni  
+6 Tablespoons butter  
+6 Tablespoons flour  
+&frac14; teaspoon pepper  
+7&frac12; cups milk (I use whole)  
+10 cups shredded cheddar cheese (I use medium)  
+
+2 packages saltine crackers  
+1 stick of butter  
 
 ## Instructions
 Cook macaroni according to package directions.  

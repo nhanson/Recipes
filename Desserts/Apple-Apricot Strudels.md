@@ -1,15 +1,15 @@
 # Apple-Apricot Strudels
 
 ## Ingredients
-$3$ cups chopped all-purpose apples (about 3 medium)  
-$1$ cup chopped dried apricots  
-$\frac 12$ cup slivered almonds, toasted  
-$\frac 13$ cup granulated sugar  
-$\frac 14$ cup dry bread crumbs  
-$1$ tablespoon lemon juice  
-$\frac 14$ teaspoon ground nutmeg  
-$8$ frozen (thawed) phyllo leaves  
-$\frac 14$ cup margarine or butter, melted  
+3 cups chopped all-purpose apples (about 3 medium)  
+1 cup chopped dried apricots  
+&frac12; cup slivered almonds, toasted  
+&frac13; cup granulated sugar  
+&frac14; cup dry bread crumbs  
+1 tablespoon lemon juice  
+&frac14; teaspoon ground nutmeg  
+8 frozen (thawed) phyllo leaves  
+&frac14; cup margarine or butter, melted  
 Powdered sugar  
 
 ## Instructions

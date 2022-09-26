@@ -3,14 +3,14 @@
 *Recipe from "Daily News" October 18, 2006 plus a few Carolyn alterations.*
 
 ## Ingredients
-$1$ pkg instant dry yeast  
-$2$ cups warm water  
-$1$ teaspoon sugar  
-$5$ to $5 \frac 12$ cups flour  
-$2$ tablespoons olive oil  
-$\frac 14$ cup wheat germ  
-$\frac 14$ cup whole wheat flour  
-$3$ teaspoons kosher salt  
+1 pkg instant dry yeast  
+2 cups warm water  
+1 teaspoon sugar  
+5 to 5&frac12; cups flour  
+2 tablespoons olive oil  
+&frac14; cup wheat germ  
+&frac14; cup whole wheat flour  
+3 teaspoons kosher salt  
 
 ## Instructions
 Mix water, yeast, sugar and 1 cup of flour.  
@@ -20,7 +20,7 @@ Gradually add salt and more flour till the dough comes together.
 Knead, adding small amounts of remaining flour.  
 Being careful not to get the dough too dry.  
 Knead for about 10 minutes, until elastic.  
-Let rise 1 1/2 hours.  
+Let rise 1&frac12; hours.  
 Punch down and let rise an additional 30 minutes.  
 Punch down and divide into two portions.  
 Form into 2 french bread loaves.  

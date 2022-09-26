@@ -4,23 +4,23 @@
 *Make the swirl in Cinnamon Swirl Loaf by rolling up a mixture of sugar and spice in the dough. After baking, drizzle Confectioners' Icing over top. This bread is delicious when toasted, too.*
 
 ## Ingredients
-$7$ to $7 \frac 12$ cups all-purpose flour  
-$2$ packages active dry yeast  
-$2$ cups milk  
-$\frac 12$ cup sugar  
-$\frac 12$ cup shortening  
-$2$ teaspoons salt  
-$2$ eggs  
+7 to 7&frac12; cups all-purpose flour  
+2 packages active dry yeast  
+2 cups milk  
+&frac12; cup sugar  
+&frac12; cup shortening  
+2 teaspoons salt  
+2 eggs  
 
-$\frac 12$ cup sugar  
-$2$ teaspoons ground cinnamon  
+&frac12; cup sugar  
+2 teaspoons ground cinnamon  
 [Confectioners' Icing](../Extras/Confectioners'%20Icing.md)  
 
 ## Instructions
-In large mixer bowl combine 3 1/2 cups of the flour and the yeast.  
-In saucepan heat milk, 1/2 cup sugar, shortening, and salt just till warm (115-120&deg;), stirring constantly to melt shortening.  
+In large mixer bowl combine 3&frac12; cups of the flour and the yeast.  
+In saucepan heat milk, &frac12; cup sugar, shortening, and salt just till warm (115-120&deg;), stirring constantly to melt shortening.  
 Add to dry mixture in mixer bowl; add eggs.  
-Beat at low speed with electric mixer for 1/2 minute, scraping sides of bowl constantly.  
+Beat at low speed with electric mixer for 30 seconds, scraping sides of bowl constantly.  
 Beat 3 minutes at high speed.  
 By hand, stir in enough of the remaining flour to make a moderately soft dough.  
 Turn out on lightly floured surface and knead till smooth and elastic (5 to 8 minutes).  
@@ -30,7 +30,7 @@ Punch dough down; turn out on lightly floured surface.
 Divide in half. Cover; let rest 10 minutes.  
 Roll each half into a 15x7 inch rectangle.  
 Brush entire surface with water.  
-Combine the 1/2 cup sugar and the ground cinnamon.  
+Combine the &frac12; cup sugar and the ground cinnamon.  
 Spread each rectangle with half the sugar-cinnamon mixture.  
 Roll dough up as for jelly roll, beginning with narrow side.  
 Seal long edge and ends.  

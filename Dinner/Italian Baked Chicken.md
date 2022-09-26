@@ -15,4 +15,4 @@ Bake for 1 hour, or until done.
 
 *Get your husband to help you. Together you could "spice" up some of those recipes, creating your own dishes. Have fun in the kitchen!*  
 *- Heloise*  
-*This is good & easy*  
+*This is good and easy*  

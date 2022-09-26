@@ -3,13 +3,13 @@
 *Apple Crisp is an American classic that uses our abundance of native apples in a luxurious-tasting, no-fuss dessert. During World War II when food rationing was in effect, this patriotic crisp was featured as "easy on shortening and sugar."*
 
 ## Ingredients
-$4$ cups sliced tart apples (about 4 medium)  
-$\frac 23$ to $\frac 34$ cup packed brown sugar  
-$\frac 12$ cup all-purpose flour - *Self-rising flour can be used in this recipe*  
-$\frac 12$ cup oats  
-$\frac 13$ cup margarine or butter, softened  
-$\frac 34$ teaspoon ground cinnamon  
-$\frac 34$ teaspoon ground nutmeg  
+4 cups sliced tart apples (about 4 medium)  
+&frac23; to&frac34; cup packed brown sugar  
+&frac12; cup all-purpose flour - *Self-rising flour can be used in this recipe*  
+&frac12; cup oats  
+&frac13; cup margarine or butter, softened  
+&frac34; teaspoon ground cinnamon  
+&frac34; teaspoon ground nutmeg  
 
 ## Instructions
 Heat oven to 375&deg;.  
@@ -38,7 +38,7 @@ Substitute fresh peaches or 1 can (29 ounces) sliced peaches, drained, for the a
 *285 calories per serving.*  
 
 ### Pineapple Crisp:
-Substitute 2 cans (13 1/2 ounces each) pineapple chunks, drained, or 2 cans (20 ounces each) crushed pineapple, drained, for the apples and use the lesser amount of brown sugar.  
+Substitute 2 cans (13&frac12; ounces each) pineapple chunks, drained, or 2 cans (20 ounces each) crushed pineapple, drained, for the apples and use the lesser amount of brown sugar.  
 *285 calories per serving.*  
 
 ### *Makes 6 servings*

@@ -4,10 +4,10 @@
 *From Portland's Palate*  
 
 ## Ingredients
-$5$ quarts milk  
-$1$ quart half and half  
-$3$ cups brandy (one fifth)  
-$2$ cups light rum  
+5 quarts milk  
+1 quart half and half  
+3 cups brandy (one fifth)  
+2 cups light rum  
 Granulated sugar  
 Ground nutmeg for garnish  
 

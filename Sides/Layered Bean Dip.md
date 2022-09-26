@@ -1,11 +1,11 @@
 # Shim's Layered Bean Dip
 
 ## Ingredients
-$1$ 16oz can refried beans  
-$1$ 15oz can black beans, rinsed  
-$\frac 12$ cup sour cream  
-$1$ cup bottled salsa  
-$1$ cup shredded chedder or Mexican blend cheese  
+1 16oz can refried beans  
+1 15oz can black beans, rinsed  
+&frac12; cup sour cream  
+1 cup bottled salsa  
+1 cup shredded chedder or Mexican blend cheese  
 Chopped cilantro  
 
 ## Instructions

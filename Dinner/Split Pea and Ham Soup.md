@@ -1,18 +1,18 @@
 # Split Pea and Ham Soup
 
 ## Ingredients
-$1$ (16-oz.) pkg. dried green split peas, sorted and rinsed  
-$2$ quarts water  
-$4$ Tbsp olive oil  
-$2$ cups chopped onion  
-$2$ cups chopped carrots  
-$2$ cups sliced celery  
-$4$ cloves garlic, minced  
-$1$ Kirkland Signature Spiral Sliced Ham bone with leftover meat  
-$4$ cups cubed ham (or remaining leftovers)  
-$2$ quarts water  
-$1$ tsp. salt  
-$\frac 12$ tsp. ground black pepper  
+1 (16-oz.) pkg. dried green split peas, sorted and rinsed  
+2 quarts water  
+4 Tbsp olive oil  
+2 cups chopped onion  
+2 cups chopped carrots  
+2 cups sliced celery  
+4 cloves garlic, minced  
+1 Kirkland Signature Spiral Sliced Ham bone with leftover meat  
+4 cups cubed ham (or remaining leftovers)  
+2 quarts water  
+1 tsp. salt  
+&frac12; tsp. ground black pepper  
 
 ## Instructions
 Place split peas and 2 quarts water in a large saucepan.  

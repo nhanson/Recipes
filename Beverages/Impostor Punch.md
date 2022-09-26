@@ -3,12 +3,12 @@
 *A cocktail the entire family can enjoy.*  
 
 ## Ingredients
-$1$ (6-ounce) can frozen lemonade concentrate  
-$1$ (6-ounce) can frozen pineapple juice concentrate  
-$2$ cups cold water  
-$1$ (32-ounce) bottle sparkling water  
-$1$ (32-ounce) bottle sparkling grape juice (or white grape juice)  
-$1$ (32-ounce) bottle ginger ale  
+1 (6-ounce) can frozen lemonade concentrate  
+1 (6-ounce) can frozen pineapple juice concentrate  
+2 cups cold water  
+1 (32-ounce) bottle sparkling water  
+1 (32-ounce) bottle sparkling grape juice (or white grape juice)  
+1 (32-ounce) bottle ginger ale  
 Ice mold  
 Fresh mint for garnish  
 Orange and lemon slices for garnish  

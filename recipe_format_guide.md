@@ -4,10 +4,11 @@
 *This is some info/history*  
 
 ## Ingredients
-$x$ Ingredient a  
-$\frac xy$ Ingredient b  
-\
-$x$ to $y$ Ingredient c  
+2 Ingredient a  
+&frac14; Ingredient b  
+1&frac12; Ingredient c  
+ 
+4 to 5 Ingredient c  
 <!-- TODO: standardize ingredient measurement abbreviations -->
 #### Sub ingredients
 Ingredient d  

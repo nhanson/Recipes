@@ -1,18 +1,18 @@
 # Chicken Pot Pie
 
 ## Ingredients
-$6$ tablespoons butter  
-$6$ tablespoons flour  
-$2$ cups chicken broth  
-$1$ cup heavy cream  
-$1$ teaspoon freshly ground pepper  
+6 tablespoons butter  
+6 tablespoons flour  
+2 cups chicken broth  
+1 cup heavy cream  
+1 teaspoon freshly ground pepper  
 Salt  
-$4$ cups large chunks of cooked chicken  
-$12$ small white onions, cooked  
-$\frac 34$ cup peas, cooked  
-$\frac 34$ cup carrots, cooked  
-$\frac 34$ cup celery, cooked  
-$1$ recipe [Basic Pastry](../Extras/Flaky%20Pie%20Dough.md) for 9-inch shell  
+4 cups large chunks of cooked chicken  
+12 small white onions, cooked  
+&frac34; cup peas, cooked  
+&frac34; cup carrots, cooked  
+&frac34; cup celery, cooked  
+1 recipe [Basic Pastry](../Extras/Flaky%20Pie%20Dough.md) for 9-inch shell  
 
 ## Instructions
 Preheat the oven to 425&deg;.  

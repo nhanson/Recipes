@@ -1,21 +1,21 @@
 # Frosted Meatloaf
 
 ## Ingredients
-$2$ pounds ground beef  
-$2$ cups Kraft French Dressing  
-$2$ cups dry bread crumbs - *Panko Bread Crumbs are best*  
-$\frac 12$ cups chopped onion  
-$2$ eggs, beaten  
-$1$ teaspoon salt  
-$\frac 12$ teaspoon pepper  
-$1$ teaspoon garlic flakes  
-\
-$2$ cups hot mashed potatoes  
-$1$ egg, beaten  
-$\frac 12$ cup mayonnaise  
-$1$ teaspoon salt - *watch the salt*  
-$\frac 14$ teaspoon pepper  
-$\frac 14$ cup Parmesan cheese  
+2 pounds ground beef  
+2 cups Kraft French Dressing  
+2 cups dry bread crumbs - *Panko Bread Crumbs are best*  
+&frac12; cups chopped onion  
+2 eggs, beaten  
+1 teaspoon salt  
+&frac12; teaspoon pepper  
+1 teaspoon garlic flakes  
+
+2 cups hot mashed potatoes  
+1 egg, beaten  
+&frac12; cup mayonnaise  
+1 teaspoon salt - *watch the salt*  
+&frac14; teaspoon pepper  
+&frac14; cup Parmesan cheese  
 Sliced tomato, olives, mushrooms, pimiento, or parsley as desired  
 
 ## Instructions

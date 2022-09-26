@@ -6,11 +6,11 @@
 *If you could have only one pie dough in your repertoire (heaven forbid), it would have to be this one, the classic dough that earns blue ribbons at county fairs and stars at esteemed pastry shops. The mix of butter and shortening guarantees that the dough will be flaky, flavorful, and tender. You can use this dough to make any kind of pie or tart, sweet or savory, plain or fancy. It is easy to roll and crimp and is made quickly by hand, in a mixer, or food processor. The recipe is large and can be cut in half or even quartered, but since the dough can be frozen for up to a month, it's practical to make the full batch. You can freeze the dough in disks, rolled out in circles, or already fitted into pie pans or tart molds, ready to go into the oven-without thawing-when you're in a crunch for a crust.*  
 
 ## Ingredients
-$5 \frac 14$ cups pastry flour or all-purpose flour  
-$1$ tablespoon kosher salt  
-$1 \frac 12$ sticks (6 ounces) cold unsalted butter, cut into small pieces  
-$1 \frac 34$ cups (11 ounces) solid vegetable shortening, chilled  
-$1$ cup ice water  
+5&frac14; cups pastry flour or all-purpose flour  
+1 tablespoon kosher salt  
+1&frac12; sticks (6 ounces) cold unsalted butter, cut into small pieces  
+1&frac34; cups (11 ounces) solid vegetable shortening, chilled  
+1 cup ice water  
 
 ## Instructions
 ### TO MAKE THE DOUGH BY HAND:
@@ -57,7 +57,7 @@ Lightly gather the dough into a round and chill before rolling.
 *There are a few general rules that obtain no matter what kind of crust or filling you choose; follow these and you and your crust will be golden. (In fact, these same tips will help you make lovely biscuits and scones too.)*
 
 - *Work in a bowl that's large enough for you to dig into with both hands.*
-- *Always use unsalted butter and make sure it is extremely cold. Cut the butter into 1/2-inch cubes before adding it to the flour.*
+- *Always use unsalted butter and make sure it is extremely cold. Cut the butter into&frac12;-inch cubes before adding it to the flour.*
 - *Use a pastry blender or your fingertips to cut the butter into the flour. Work as quickly as you comfortably can and stop when the mixture resembles coarse crumbs.*
 - *When you use solid vegetable shortening, chill it and cut it into chunks a bit bigger than the butter cubes. Work the shortening into the dough until the mixture forms moist clumps and curds-when you add the liquid, you'll get even larger clumps.*
 - *Keep the liquid icy-cold. Add it a spoonful at a time, using a fork to toss the mixture and incorporate the liquid into the dough. When the dough has curds and clumps that stick together when lightly pressed between your fingers, it's just right. If you have any doubts, keep in mind that it's better to add too much liquid than too little; too little, and the crust will be dry and difficult to roll.*

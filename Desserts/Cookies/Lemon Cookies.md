@@ -4,18 +4,18 @@
 *Food.com*
 
 ## Ingredients
-$2$ cups butter, room temperature  
-$\frac 23$ cup powdered sugar  
-$1$ teaspoon lemon zest  
-$\frac 12$ teaspoon vanilla extract  
-$2$ cups flour  
-$1 \frac 12$ cups cornstarch  
+2 cups butter, room temperature  
+&frac23; cup powdered sugar  
+1 teaspoon lemon zest  
+&frac12; teaspoon vanilla extract  
+2 cups flour  
+1&frac12; cups cornstarch  
 
 #### Frosting
-$\frac 13$ cup butter, room temperature  
-$1$ teaspoon lemon zest  
-$\frac13$ to $\frac 12$ cup fresh lemon juice  
-$4$ cups powdered sugar  
+&frac13; cup butter, room temperature  
+1 teaspoon lemon zest  
+&frac13; to&frac12; cup fresh lemon juice  
+4 cups powdered sugar  
 
 ## Instructions
 Preheat oven to 350&deg;.  

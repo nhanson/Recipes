@@ -1,14 +1,14 @@
 # Perfect Corn Bread
 
 ## Ingredients
-$1$ cup flour  
-$\frac 14$ to $\frac 12$ cup sugar  
-$4$ teaspoons baking powder  
-$1$ teaspoon salt  
-$1$ cup yellow corn meal  
-$2$ eggs  
-$1$ cup milk  
-$\frac 14$ cup soft shortening or oil  
+1 cup flour  
+&frac14; to &frac12; cup sugar  
+4 teaspoons baking powder  
+1 teaspoon salt  
+1 cup yellow corn meal  
+2 eggs  
+1 cup milk  
+&frac14; cup soft shortening or oil  
 
 ## Instructions
 Sift together flour, sugar, baking powder, and salt.  

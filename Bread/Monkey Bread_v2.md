@@ -3,17 +3,17 @@ Monkey Bread
 *This is a sensationally good and oddly textured sweet bread or coffee cake. It has been known as monkey bread for as long as I can remember. I have never seen an explanation for the name; perhaps it has stuck because of the bread's silly shape. I have also heard it called bubble bread. It is made in a tube pan, and if you follow directions carefully you will have a very light finished product that can be cooled and sliced or served warm and pulled apart in little clumps. You must, however, take special care in the baking to see that it is thoroughly cooked before it comes out of the oven.*
 
 ## Ingredients
-$2$ packages active dry yeast  
-$1$ cup granulated sugar  
-$\frac 12$ cup warm water (100-115 degrees, approximately)  
-$2$ sticks ($1$ cup) softened sweet butter  
-$1 \frac 12$ tablespoons salt  
-$1$ cup warm milk  
-$3$ eggs  
-$2$ egg yolks  
-$6$ to $7$ cups all-purpose flour  
-$\frac 12$ cup brown sugar  
-$\frac 12$ cup currants, presoaked  
+2 packages active dry yeast  
+1 cup granulated sugar  
+&frac12; cup warm water (100-115 degrees, approximately)  
+2 sticks (1 cup) softened sweet butter  
+1&frac12; tablespoons salt  
+1 cup warm milk  
+3 eggs  
+2 egg yolks  
+6 to 7 cups all-purpose flour  
+&frac12; cup brown sugar  
+&frac12; cup currants, presoaked  
 
 ## Instructions
 Combine the yeast, white sugar, and water in a large mixing bowl.  

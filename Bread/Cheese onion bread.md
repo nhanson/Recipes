@@ -1,10 +1,10 @@
 # Cheese onion bread
 
 ## Ingredients
-$1$ loaf frozen "Rhodes" white bread dough thawed  
-$\frac 13$ lb med or sharp cheddar cheese  
-$\frac 12$ bunch green onion tops (sliced as thin as possible)  
-$1$ egg yolk  
+1 loaf frozen "Rhodes" white bread dough thawed  
+&frac13; lb med or sharp cheddar cheese  
+&frac12; bunch green onion tops (sliced as thin as possible)  
+1 egg yolk  
 
 ## Instructions
 Stretch and flatten dough.  

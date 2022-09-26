@@ -1,11 +1,11 @@
 # Cinnamon Swirl Braid
 
 ## Ingredients
-$1$ loaf frozen white (or sweet) bread dough, thawed  
-$\frac 12$ tablespoons butter or margarine, melted  
-$\frac 13$ cup sugar  
-$\frac 13$ cup raisins  
-$1$ teaspoon cinnamon  
+1 loaf frozen white (or sweet) bread dough, thawed  
+&frac12; tablespoons butter or margarine, melted  
+&frac13; cup sugar  
+&frac13; cup raisins  
+1 teaspoon cinnamon  
 
 ## Instructions
 Let dough rise until doubled in size.  

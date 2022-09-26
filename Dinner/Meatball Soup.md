@@ -2,23 +2,23 @@
 
 ## Ingredients
 #### Soup:
-$4$ 10 1/2-ounce cans undiluted beef broth - watch the salt  
-$1$ cup diced onion  
-$4$ chopped carrots  
-$5$ ribs of celery with leaves, chopped  
-$2$ cups water  
-$1$ 16-ounce can of tomato sauce  
-$1$ 16-ounce can of stewed tomatoes  
-$\frac 14$ teaspoon ground oregano  
-$\frac 14$ teaspoon chili powder  
-$\frac 14$ cup dried parsley flakes  
-$1$ cup shredded cabbage  
+4 10&frac12;-ounce cans undiluted beef broth - watch the salt  
+1 cup diced onion  
+4 chopped carrots  
+5 ribs of celery with leaves, chopped  
+2 cups water  
+1 16-ounce can of tomato sauce  
+1 16-ounce can of stewed tomatoes  
+&frac14; teaspoon ground oregano  
+&frac14; teaspoon chili powder  
+&frac14; cup dried parsley flakes  
+1 cup shredded cabbage  
 
 #### Meatballs:
-$1$ pound uncooked ground beef  
-$1$ egg, beaten  
-$\frac 14$ cup uncooked rice  
-$\frac 14$ teaspoon chili powder  
+1 pound uncooked ground beef  
+1 egg, beaten  
+&frac14; cup uncooked rice  
+&frac14; teaspoon chili powder  
 Black pepper, to taste  
 
 ## Instructions
@@ -37,7 +37,7 @@ Mix until well-blended. Form into 12-inch balls.
 Drop meatballs into soup. Let cook about 45 minutes, until meatballs are cooked through, stirring occasionally.  
 During the last 10 minutes of cooking time, add the shredded cabbage.  
 
-*Per serving (based on 12 servings): 177 calories (25 percent from protein, 30 percent from carbohydrate, 45 percent from fat), 11 grams protein, 13 grams carbohydrate, 9 grams fat, 46 milligrams cholesterol, 1,085 milligrams sodium. Exchanges: 2 vegetable, 1 1/2 meat, 1 fat.*
+*Per serving (based on 12 servings): 177 calories (25 percent from protein, 30 percent from carbohydrate, 45 percent from fat), 11 grams protein, 13 grams carbohydrate, 9 grams fat, 46 milligrams cholesterol, 1,085 milligrams sodium. Exchanges: 2 vegetable, 1&frac12; meat, 1 fat.*
 
 *Notes:*  
 *Make meatballs the night before if you want to save time.*

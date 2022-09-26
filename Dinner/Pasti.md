@@ -2,18 +2,18 @@
 
 ## Ingredients
 #### Filling:
-$2$ Lb beef  
-$4$ medium-sized potatoes  
-$1$ onion  
+2 Lb beef  
+4 medium-sized potatoes  
+1 onion  
 butter  
 salt  
 white pepper  
 
 #### Crust:
-$5 \frac 13$ cups flour  
-$1$ Tablespoon salt  
-$1 \frac 13$ cups cooking oil  
-$\frac 23$ cups milk  
+5&frac13; cups flour  
+1 Tablespoon salt  
+1&frac13; cups cooking oil  
+&frac23; cups milk  
 
 ## Instructions
 #### Crust:

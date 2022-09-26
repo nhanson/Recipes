@@ -1,14 +1,14 @@
 # Impossible Taco Pie
 
 ## Ingredients
-$1$ pound ground beef  
-$\frac 12$ cup chopped onion  
-$1$ envelope (144 ounces) taco seasoning mix  
-$1$ can (4 ounces) chopped green chilies, drained  
-$1\frac 14$ cups milk  
-$3$ eggs  
-$\frac 34$ cup Bisquick Original baking mix  
-$1$ cup (4 ounces) shredded Colby-Monterey Jack or Cheddar cheese  
+1 pound ground beef  
+&frac12; cup chopped onion  
+1 envelope (144 ounces) taco seasoning mix  
+1 can (4 ounces) chopped green chilies, drained  
+1&frac14; cups milk  
+3 eggs  
+&frac34; cup Bisquick Original baking mix  
+1 cup (4 ounces) shredded Colby-Monterey Jack or Cheddar cheese  
 
 ## Instructions
 Heat oven to 400&deg;.  

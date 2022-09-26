@@ -3,17 +3,17 @@
 *For variety, substitute cut-up dates or freshly chopped candied fruits for the raisins.*
 
 ## Ingredients
-$1$ cup shortening  
-$1 \frac 14$ cups sugar  
-$2$ eggs  
-$\frac 13$ cup ~~molasses~~ honey  
-$1 \frac 34$ cups Gold Medal Flour  
-$1$ tsp. soda  
-$1$ tsp. salt  
-$1$ tsp. cinnamon  
-$2$ cups rolled oats  
-$1$ cup chopped nuts  
-$1$ cup raisins  
+1 cup shortening  
+1&frac14; cups sugar  
+2 eggs  
+&frac13; cup ~~molasses~~ honey  
+1&frac34; cups Gold Medal Flour  
+1 tsp. soda  
+1 tsp. salt  
+1 tsp. cinnamon  
+2 cups rolled oats  
+1 cup chopped nuts  
+1 cup raisins  
 
 ## Instructions
 Heat oven to 400&deg; (mod. hot).  
