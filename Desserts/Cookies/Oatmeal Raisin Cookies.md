@@ -3,7 +3,7 @@
 *For variety, substitute cut-up dates or freshly chopped candied fruits for the raisins.*
 
 ## Ingredients
-1 cup shortening  
+&frac12; cup shortening  
 1&frac14; cups sugar  
 2 eggs  
 &frac13; cup ~~molasses~~ honey  
@@ -12,7 +12,7 @@
 1 tsp. salt  
 1 tsp. cinnamon  
 2 cups rolled oats  
-1 cup chopped nuts  
+&frac12; cup chopped nuts  
 1 cup raisins  
 
 ## Instructions
