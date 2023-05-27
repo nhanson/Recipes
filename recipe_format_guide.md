@@ -1,6 +1,6 @@
 # Recipe Name in Title Case
-
 *The author/source*  
+
 *This is some info/history*  
 
 ## Ingredients
@@ -13,10 +13,10 @@
 #### Sub ingredients
 Ingredient d  
 
-
 ## Instructions
 Instruction a  
-Oven to ___&deg;  
+Oven to 375&deg;  
+In a 3&times;3-inch pan
 
 #### Sub instructions
 Instruction b  

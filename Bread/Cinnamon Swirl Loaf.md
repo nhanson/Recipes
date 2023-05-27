@@ -28,13 +28,13 @@ Shape into a ball. Place in lightly greased bowl, turning once to grease surface
 Cover; let rise in warm place till double (about 1 hour).  
 Punch dough down; turn out on lightly floured surface.  
 Divide in half. Cover; let rest 10 minutes.  
-Roll each half into a 15x7 inch rectangle.  
+Roll each half into a 15&times;7-inch rectangle.  
 Brush entire surface with water.  
 Combine the &frac12; cup sugar and the ground cinnamon.  
 Spread each rectangle with half the sugar-cinnamon mixture.  
 Roll dough up as for jelly roll, beginning with narrow side.  
 Seal long edge and ends.  
-Place, sealed edge down, in 2 greased 9x5x3-inch loaf pans.  
+Place, sealed edge down, in 2 greased 9&times;5&times;3-inch loaf pans.  
 Cover and let rise in warm place till almost double (35 to 45 minutes).  
 Bake at 375&deg; till done, 35 to 40 minutes. (If crust browns too quickly, cover with foil last 15 minutes of baking.)  
 Remove bread from pans and cool on wire racks.  

@@ -26,7 +26,7 @@ Bake for 25–30 minutes, or until the crust is nicely browned.
 
 ### Chicken Pie Country Style
 Use 1 recipe [Baking Powder Biscuits](../Bread/Baking%20Powder%20Biscuits.md) instead of Basic Pastry.  
-Roll out the biscuit dough 5 inch thick, cut in 2-inch rounds, and place them, edges touching, all over the top of the pie.  
+Roll out the biscuit dough 5-inch thick, cut in 2-inch rounds, and place them, edges touching, all over the top of the pie.  
 Bake at 450 degrees for 15-20 minutes, until browned.  
 
 ### *Serves six*

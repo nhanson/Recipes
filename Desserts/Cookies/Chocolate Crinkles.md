@@ -24,7 +24,7 @@ Chill several hours or overnight.
 Heat oven to 350&deg;.  
 Drop teaspoonfuls of dough into confectioners' sugar.  
 Roll in sugar; shape into balls.  
-Place about 2" apart on greased baking sheet.  
+Place about 2 inches apart on greased baking sheet.  
 Bake 10 to 12 min. Do not overbake!  
 
 *Note:*  

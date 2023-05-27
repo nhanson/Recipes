@@ -20,9 +20,9 @@ Heat oven to 400&deg;.
 Mix shortening, 1&frac12; cups sugar, and eggs thoroughly.  
 Measure flour by dipping method (p.5) or by sifting.  
 Blend flour, cream of tartar, soda, and salt; stir in.  
-Shape dough in 1" balls.  
+Shape dough in 1-inch balls.  
 Roll in mixture of 2 tablespoons sugar and cinnamon.  
-Place 2" apart on ungreased baking sheet.  
+Place 2 inches apart on ungreased baking sheet.  
 Bake 8 to 10 min.  
 These cookies puff up at first, then flatten out.  
 

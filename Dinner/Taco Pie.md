@@ -12,7 +12,7 @@
 
 ## Instructions
 Heat oven to 400&deg;.  
-Grease glass pie plate, 10x12 inches.  
+Grease 10&times;12-inch glass pie plate.  
 Cook ground beef and onion in 10-inch skillet over medium heat, stirring occasionally, until beef is brown; drain.  
 Stir in seasoning mix (dry).  
 Spread in pie plate; top with chilies.  

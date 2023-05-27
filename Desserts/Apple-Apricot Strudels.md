@@ -15,8 +15,8 @@ Powdered sugar
 ## Instructions
 Heat oven to 375&deg;.  
 Mix apples, apricots, almonds, granulated sugar, bread crumbs, lemon juice and nutmeg.  
-Fold 1 phyllo leaf in half crosswise and brush with margarine. (Keep remaining phyllo   leaves covered with a dampened towel to prevent them from drying out.)  
-Place about 3 cups of the apple mixture in center of phyllo leaf 1 inch from narrow end   of leaf.  
+Fold 1 phyllo leaf in half crosswise and brush with margarine. *Note: Keep remaining phyllo leaves covered with a dampened towel to prevent them from drying out.*  
+Place about 3 cups of the apple mixture in center of phyllo leaf 1 inch from narrow end of leaf.  
 Fold sides of phyllo toward center, overlapping sides slightly.  
 Roll up, beginning at filling end.  
 Place seam side down on ungreased cookie sheet.  

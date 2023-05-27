@@ -13,49 +13,51 @@
 1 cup ice water  
 
 ## Instructions
-### TO MAKE THE DOUGH BY HAND:
-Mix the flour and salt together in a large bowl.
-Add the butter and, using a pastry blender (or your fingers, if you prefer), cut it into the flour until the mixture looks like coarse crumbs.
-Be patient-this takes a while.
-Break up the shortening and add it in bits to the bowl.
-Still working with the pastry blender (or your fingers), cut in the shortening until the mixture has small clumps and curds.
-Switch to a wooden spoon and add the ice water, stirring to incorporate it.
-Turn the dough out onto a work surface and fold it over on itself a few times-don't get carried away.
-The dough will be soft, but it will firm sufficiently in the refrigerator.
+### To Make the Dough By Hand:
+Mix the flour and salt together in a large bowl.  
+Add the butter and, using a pastry blender (or your fingers, if you prefer), cut it into the flour until the mixture looks like coarse crumbs.  
+Be patient-this takes a while.  
+Break up the shortening and add it in bits to the bowl.  
+Still working with the pastry blender (or your fingers), cut in the shortening until the mixture has small clumps and curds.  
+Switch to a wooden spoon and add the ice water, stirring to incorporate it.  
+Turn the dough out onto a work surface and fold it over on itself a few times-don't get carried away.  
+The dough will be soft, but it will firm sufficiently in the refrigerator.  
 
-### TO MAKE THE DOUGH IN A MIXER FITTED WITH THE PADDLE ATTACHMENT:
-Put the flour and salt into the bowl and stir to mix.
-Add the butter and mix on low until it is cut into the dry ingredients and the mixture looks coarse and crumbly.
-Add the shortening in small bits and continue to mix on low.
-When the mixture is clumpy and curdy and holds together when a small bit is pressed between your fingers, add the water and mix only until it is incorporated.
-Turn the dough out onto a work surface and fold it over on itself two or three times, just to finish the mixing and to gather it together.
+### To Make the Dough in a Mixer Fitted With the Paddle Attachment:
+Put the flour and salt into the bowl and stir to mix.  
+Add the butter and mix on low until it is cut into the dry ingredients and the mixture looks coarse and crumbly.  
+Add the shortening in small bits and continue to mix on low.  
+When the mixture is clumpy and curdy and holds together when a small bit is pressed between your fingers, add the water and mix only until it is incorporated.  
+Turn the dough out onto a work surface and fold it over on itself two or three times, just to finish the mixing and to gather it together.  
 
-### To MAKE THE DOUGH IN A FOOD PROCESSOR:
-Start with very cold ingredients and take care not to overwork them.
-Place the dry ingredients in the food processor fitted with a metal blade and pulse just to mix.
-Take the top off, scatter the chilled cubed butter and shortening over the flour, cover, and pulse again, working only until the fats are cut in and the mixture resembles slightly moist cornmeal.
-Add a little of the liquid and pulse a few times, then add more liqtlid and pulse again.
-Continue until the mixture has curds and clumps and sticks together when pressed between your fingers.
-Don't process until the dough forms a ball that rides on the blade-that's overdoing it.
+### To Make the Dough in a Food Processor:
+Start with very cold ingredients and take care not to overwork them.  
+Place the dry ingredients in the food processor fitted with a metal blade and pulse just to mix.  
+Take the top off, scatter the chilled cubed butter and shortening over the flour, cover, and pulse again, working only until the fats are cut in and the mixture resembles slightly moist cornmeal.  
+Add a little of the liquid and pulse a few times, then add more liqtlid and pulse again.  
+Continue until the mixture has curds and clumps and sticks together when pressed between your fingers.  
+Don't process until the dough forms a ball that rides on the blade-that's overdoing it.  
 
 #### Chilling the Dough:
-Wrap the dough in plastic and refrigerate for at least 2 hours or for as long as 5 days. When the dough is thoroughly chilled and finn, it is ready to roll out and use in any recipe calling for flaky pie crust.
+Wrap the dough in plastic and refrigerate for at least 2 hours or for as long as 5 days.
+When the dough is thoroughly chilled and firm, it is ready to roll out and use in any recipe calling for flaky pie crust.
 
 #### Storing:
-The dough can be kept in the refrigerator for 5 days or frozen for 1 month. It's a good idea to divide the dough into quarters for freezing since one quarter of the recipe is generally enough for one pie crust or tart shell. Defrost, still wrapped, in the refrigerator.
+The dough can be kept in the refrigerator for 5 days or frozen for 1 month.
+It's a good idea to divide the dough into quarters for freezing since one quarter of the recipe is generally enough for one pie crust or tart shell.
+Defrost, still wrapped, in the refrigerator.
 
 ---
 
 ### Pie Dough by Hand:
-With a pastry blender, cut chilled butter into the flour and salt until the mixture looks like coarse crumbs. Cut in the chilled shortening until it forms curds.
+With a pastry blender, cut chilled butter into the flour and salt until the mixture looks like coarse crumbs.
+Cut in the chilled shortening until it forms curds.
 Add the ice water gradually and toss to blend.
-When the dough is sufficiently moist, pinch it-it will stick together.
+When the dough is sufficiently moist, pinch it - it will stick together.
 Lightly gather the dough into a round and chill before rolling.
 
-
 *Tips on Perfect Pie Dough:*  
-*There are a few general rules that obtain no matter what kind of crust or filling you choose; follow these and you and your crust will be golden. (In fact, these same tips will help you make lovely biscuits and scones too.)*
-
+*There are a few general rules that obtain no matter what kind of crust or filling you choose; follow these and you and your crust will be golden. (In fact, these same tips will help you make lovely biscuits and scones too.)*  
 - *Work in a bowl that's large enough for you to dig into with both hands.*
 - *Always use unsalted butter and make sure it is extremely cold. Cut the butter into &frac12;-inch cubes before adding it to the flour.*
 - *Use a pastry blender or your fingertips to cut the butter into the flour. Work as quickly as you comfortably can and stop when the mixture resembles coarse crumbs.*

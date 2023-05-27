@@ -31,7 +31,7 @@ Add oregano, chili powder and parsley, cook for 30 minutes.
 
 #### To make meatballs:
 While soup cooks, mix ground beef, egg, rice, chili powder and pepper together.  
-Mix until well-blended. Form into 12-inch balls.  
+Mix until well-blended. Form into &frac12;-inch balls.  
 
 #### To finish:
 Drop meatballs into soup. Let cook about 45 minutes, until meatballs are cooked through, stirring occasionally.  

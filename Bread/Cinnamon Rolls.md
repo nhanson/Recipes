@@ -16,7 +16,7 @@ Stir in as much of the remaining flour as you can.
 On a floured surface, knead in the remaining flour to make a soft dough that is smooth and elastic (3-5 minutes).  
 Shape into a ball. Placed in a greased bowl, cover and let rise in a warm place till double (about 1 hour).  
 Punch down. Let rest 10 minutes.  
-Shape dough into a 12x8 inch rectangle.  
+Shape dough into a 12&times;8-inch rectangle.  
 Brush with melted butter.  
 In a small bowl mix &frac12; cup sugar and 2 teaspoons of cinnamon.  
 Sprinkle sugar-cinnamon mixture over the top of the melted butter.  

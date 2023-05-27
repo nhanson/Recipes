@@ -21,10 +21,10 @@ In a large bowl, cream together the sugars, butter, and oil until smooth and lig
 Beat in the egg, vanilla and almond extracts, salt, and baking powder.  
 Mix in the flour.  
 Roll the dough into 1-inch balls and place them on the prepared baking sheets.  
-Using the bottom of a drinking glass dipped in granulated sugar, flatten the balls to &frac14; inch thick.  
+Using the bottom of a drinking glass dipped in granulated sugar, flatten the balls to &frac14;-inch thick.  
 Bake the cookies for 10 minutes, until they're a very light brown around the edges.  
 Remove them from the oven and transfer to a rack to cool.  
 
-*Nutrition information per serving (1 cookie, 110: 51 cal, 3 g fat, 1 g protein, 3 g complex carbohydrates, 2 g sugar. 7 mg cholesterol, 31 mg sodium, 7 mg potassium, 14 RE vitamin A, 9 mg calcium, 9 mg phosphorus*
+*Nutrition information per serving (1 cookie, 110: 51 cal, 3 g fat, 1 g protein, 3 g complex carbohydrates, 2 g sugar. 7 mg cholesterol, 31 mg sodium, 7 mg potassium, 14 RE vitamin A, 9 mg calcium, 9 mg phosphorus)*
 
 ### Makes 5.5 dozen cookies

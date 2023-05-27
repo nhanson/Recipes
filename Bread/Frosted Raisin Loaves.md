@@ -27,7 +27,7 @@ Shape into ball. Place in greased bowl; turn once.
 Cover; let rise till double (45 to 60 minutes).  
 Punch down; divide in half.  
 Cover; let rest 10 minutes.  
-Shape into 2 loaves; place in 2 greased 7&frac12; x 3&frac12; x 2-inch loaf pans.  
+Shape into 2 loaves; place in 2 greased 7&frac12;&times;3&frac12;&times;2-inch loaf pans.  
 Cover; let rise till double (about 30 minutes).  
 Bake at 375&deg; for 25 to 30 minutes. (If browning too fast, cover with foil last 10 minutes.)  
 Remove from pans; cool.  

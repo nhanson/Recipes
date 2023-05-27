@@ -1,7 +1,7 @@
 ## Scalloped Potatoes
 
 ## Ingredients
-Par boiled potatoes (skins on or off, sliced about &frac18;" thick)  
+Par boiled potatoes (skins on or off, sliced about &frac18;-inch thick)  
 6 Tablespoons butter  
 6 Tablespoons flour  
 &frac14; teaspoon pepper  
@@ -9,7 +9,7 @@ Par boiled potatoes (skins on or off, sliced about &frac18;" thick)
 10 cups shredded cheddar cheese (I use medium)  
 
 ## Instructions
-Cook potatoes (par boil) first; then slice to about &frac18;" thick  
+Cook potatoes (par boil) first; then slice to about &frac18;-inch thick  
 Meanwhile, for cheese sauce, in a saucepan, melt butter; stir in flour and pepper.  
 Add milk all at once. Cook and stir till slightly thickened and bubbly.  
 Add shredded cheese; stir until melted.  

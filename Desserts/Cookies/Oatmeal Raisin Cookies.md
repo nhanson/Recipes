@@ -21,7 +21,7 @@ Mix shortening, sugar, eggs, and molasses thoroughly.
 Measure flour by dipping method (p.5) or by sifting.  
 Stir dry ingredients together; blend in.  
 Stir in oats, nuts, and raisins. *Be sure to mix by hand - all dry ingredients. Mixer is not good*  
-Drop dough by rounded teaspoonfuls about 2" apart on lightly greased baking sheet.  
+Drop dough by rounded teaspoonfuls about 2 inches apart on lightly greased baking sheet.  
 Bake 8 to 10 min., or until lightly browned.  
 
 *Note:*  

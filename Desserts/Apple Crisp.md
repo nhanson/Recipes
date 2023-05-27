@@ -13,7 +13,7 @@
 
 ## Instructions
 Heat oven to 375&deg;.  
-Grease square pan, 8x8x2 inches.  
+Grease 8&times;8&times;2-inch square pan.  
 Arrange apples in pan.  
 Mix remaining ingredients.  
 Sprinkle over apples.  
@@ -22,7 +22,7 @@ Serve warm and, if desired, with cream or ice cream.
 *290 calories per serving.*  
 
 ### To Microwave:
-Prepare as directed except use ungreased 2-quart microwavable casserole or square microwavable dish, 8x8x2 inches.  
+Prepare as directed except use ungreased 2-quart microwavable casserole or square microwavable dish, 8&times;8&times;2-inch.  
 Microwave uncovered on high 10 to 12 minutes, rotating dish 12 turn after 5 minutes, until apples are tender.  
 
 ### Apricot Crisp:

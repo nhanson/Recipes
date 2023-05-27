@@ -1,17 +1,17 @@
 # Carolyn’s Chocolate Chip Cookies
 
 ## Ingredients
-5 cups flour  
-2 teaspoons baking soda  
-3 teaspoons salt  
+2&frac12; cups flour  
+1 teaspoon baking soda  
+1&frac12; teaspoons salt  
 
-2 cups shortening  
-1&frac12; cups granulated sugar  
-1&frac12; cups brown sugar, packed  
-1 tablespoon vanilla extract  
+1 cup shortening  
+&frac34; cups granulated sugar  
+&frac34; cups brown sugar, packed  
+&frac12; tablespoon vanilla extract  
 
-4 eggs  
-1&frac12; packages semisweet chocolate chips (18 ounces)  
+2 eggs  
+&frac34; package semisweet chocolate chips (9 ounces)  
 
 ## Instructions
 Preheat oven to 375&deg;  
@@ -24,4 +24,11 @@ Drop by rounded tablespoon onto ungreased baking sheets.
 Bake for 9 to 11 minutes or until golden brown.  
 Let stand for 2 minutes, remove to wire racks to cool completely.  
 
-### *Makes about 10 dozen cookies*
+*Notes:*  
+*I always make a double batch:*  
+*5 cups flour, 2 teaspoons baking soda, 3 teaspoons salt, 2 cups shortening,*  
+*1&frac12; cups granulated sugar, 1&frac12; cups brown sugar, 1 tablespoon vanilla extract,*  
+*4 eggs, 1&frac12; packages semisweet chocolate chips. Makes about 10 dozen*  
+
+
+### *Makes about 5 dozen cookies*

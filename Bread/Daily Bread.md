@@ -24,7 +24,7 @@ Shape dough into a round and put it into a bowl coated with about 2 teaspoon oli
 Cover with plastic wrap and let rise, 1&frac12; hours.  
 Punch down the dough, shape it back into a ball, and let it rise for the second fermentation, about 30 miniutes.  
 Punch down the dough again, divide into two portions, and shape each portion into a batard.  
-Press the dough into a rectangle, roughly 10 inches by 7 inches.  
+Press the dough into a roughly 10&times;7-inch rectangle.  
 With the long side of the rectangle facing toward you, grasp the upper corners of the dough and fold them to meet in the center of the dough, creating a peak at the top.  
 Fold down the peak to the center seam. Press the entire seam to seal it, pushing it away from you.  
 Roll down the top edge of the dough, pushing it down and away from you as you go, until you reach the bottom edge.  
