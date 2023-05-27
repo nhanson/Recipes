@@ -32,7 +32,7 @@ Sprinkle with half of topping and spread with remaining batter.
 Sprinkle with remaining topping.  
 Bake at 350&deg; 40 to 45 minutes.  
 
-#### TOPPING:
+#### Topping:
 Mix together flour, sugar, salt and nuts.  
 Add butter in small pieces.  
 Rub in by hand until mixture is crumbly.  
