@@ -6,7 +6,7 @@
 1&frac12; cup cake flour  
 &frac12; cup flour  
 1 teaspoon baking soda  
-1 teaspoon baking powder
+1 teaspoon baking powder. 
 &frac12; cup butter  
 1 cup sugar  
 1 large egg, slightly beaten  
