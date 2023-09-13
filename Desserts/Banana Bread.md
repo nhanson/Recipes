@@ -26,4 +26,4 @@ Cool for 10 minutes on a wire rack.
 Remove from the pan; cool thoroughly on a wire rack.  
 Wrap and store overnight before slicing.  
 
-### Makes 1 loaf (16 servings).
+### *Makes 1 loaf (16 servings)*
