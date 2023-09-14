@@ -5,7 +5,7 @@ Monkey Bread
 ## Ingredients
 2 packages active dry yeast  
 1 cup granulated sugar  
-&frac12; cup warm water (100-115 degrees, approximately)  
+&frac12; cup warm water (100-115&deg;, approximately)  
 2 sticks (1 cup) softened sweet butter  
 1&frac12; tablespoons salt  
 1 cup warm milk  
@@ -30,7 +30,7 @@ Meanwhile, butter a 10-inch tube pan.
 In a saucepan, melt the second stick of sweet butter with the brown sugar and currants.  
 Pinch off enough dough to make golf ball-sized balls. Roll the balls in the butter mixture, line the bottom of the tube pan with them, and continue to arrange them in loose layers.  
 Pour what is left of the butter mixture over the top. Cover loosely with a foil tent and let the dough rise to the top of the tube pan.  
-Bake in a preheated 375 degrees oven for about an hour; it may take a minute or two more.  
+Bake in a preheated 375&deg; oven for about an hour; it may take a minute or two more.  
 Tap the top; it will sound hollow when the bread is ready. (If the top browns a little too much, don't worry, because this will be served inverted.)  
 Unmold and let cool thoroughly before slicing, or serve warm and pull apart.  
 

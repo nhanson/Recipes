@@ -20,7 +20,7 @@ Brown the bacon, hamburger and onion together.
 Drain well on paper towels.  
 Mix vinegar, catsup, brown sugar and mustard together.  
 Now add all ingredients together, with 1 cup water.  
-Cover and bake at 350 degrees till very hot - 1&frac12; hours.  
+Cover and bake at 350&deg; till very hot - 1&frac12; hours.  
 
 *Note:*  
 *You might want to double this - goes fast.*

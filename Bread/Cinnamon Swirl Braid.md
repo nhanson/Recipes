@@ -16,6 +16,6 @@ Cut into 3 strips; roll up each, starting with 14-inch side. Seal seams. Braid t
 Place on greased cookie sheet, curving slightly for crescent shape.  
 Brush with remaining butter and sprinkle with remaining cinnamon sugar.  
 Cover; let rise in warm place until light, 30 to 60 minutes.  
-Bake at 350 degrees for 25 to 30 minutes.  
+Bake at 350&deg; for 25 to 30 minutes.  
 
 ### *Makes 1 braid*
