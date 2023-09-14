@@ -20,4 +20,4 @@ Add fresh ground pepper and serve.
 *Fast and easy*  
 *No need to add salt.*  
 *For chicken with the best flavor, bake whole chickens in a Reynolds bag, in the oven for 1&frac12; hours, cool 1 hour, remove from bones and discard bones, fat and skin. Put 2 cups per freezer container for later use.*  
-*Serve with [Perfect Corn Bread](../Bread/Corn%20Bread.md).*  
+*Serve with [Perfect Corn Bread](../Baking%20%26%20Desserts/Corn%20Bread.md).*  
