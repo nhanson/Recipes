@@ -5,9 +5,9 @@
 1 teaspoon baking soda  
 1&frac12; teaspoons salt  
 
-1 cup shortening  
 &frac34; cups granulated sugar  
 &frac34; cups brown sugar, packed  
+1 cup shortening  
 &frac12; tablespoon vanilla extract  
 
 2 eggs  
@@ -16,7 +16,7 @@
 ## Instructions
 - Preheat oven to 375&deg;
 - Combine flour, baking soda and salt in a small bowl.
-- Beat shortening, granulated sugar, brown sugar and vanilla in a large mixing bowl.
+- Beat granulated sugar, brown sugar, shortening and vanilla in a large mixing bowl.
 - Add eggs one at a time, beating well after each addition.
 - Gradually beat in flour mixture.
 - Stir in chocolate chips.
@@ -25,7 +25,7 @@
 - Let stand for 2 minutes, remove to wire racks to cool completely.
 
 *Notes:*  
-*I always make a double batch, makes about 10 dozen:*  
+*I always make a double batch, makes about 5 dozen:*  
 *5 cups flour, 2 teaspoons baking soda, 3 teaspoons salt, 2 cups shortening, 1&frac12; cups granulated sugar, 1&frac12; cups brown sugar, 1 tablespoon vanilla extract, 4 eggs, 1&frac12; packages semisweet chocolate chips.*  
 
-### *Makes about 5 dozen cookies*
+### *Makes about 2&frac12; dozen cookies*
