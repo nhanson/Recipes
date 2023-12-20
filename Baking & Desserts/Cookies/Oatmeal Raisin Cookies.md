@@ -7,10 +7,12 @@
 1&frac14; cups sugar  
 2 eggs  
 &frac13; cup ~~molasses~~ honey  
+
 1&frac34; cups Gold Medal Flour  
 1 tsp. soda  
 1 tsp. salt  
 1 tsp. cinnamon  
+
 2 cups rolled oats  
 &frac12; cup chopped nuts  
 1 cup raisins  
