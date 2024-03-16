@@ -1,9 +1,9 @@
 # Chocolate Crinkles
 
 ## Ingredients
+2 cups granulated sugar  
 &frac12; cup vegetable oil  
 4 squares unsweetened chocolate (4 oz.), melted  
-2 cups granulated sugar  
 4 eggs  
 2 teaspoons vanilla  
 
@@ -14,7 +14,7 @@
 1 cup confectioners' sugar  
 
 ## Instructions
-Mix oil, chocolate, and granulated sugar.  
+Mix granulated sugar, oil, and chocolate  
 Blend in one egg at a time until well mixed.  
 Add vanilla.  
 Measure flour by dipping method *(p.5)* or by sifting.  

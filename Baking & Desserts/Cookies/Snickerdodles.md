@@ -3,11 +3,11 @@
 *The recipe for this delicious "family cooky" came to us from Mrs. Ronald Anfinson, Benson, Minnesota.*
 
 ## Ingredients
-1 cup shortening (part butter or margarine)  
 1&frac12; cups sugar  
+1 cup shortening (part butter or margarine)  
 2 eggs  
-2&frac34; cups Gold Medal Flour  
 
+2&frac34; cups Gold Medal Flour  
 2 teaspoons cream of tartar  
 1 teaspoon soda  
 &frac14; teaspoon salt  
@@ -17,7 +17,7 @@
 
 ## Instructions
 Heat oven to 400&deg;.  
-Mix shortening, 1&frac12; cups sugar, and eggs thoroughly.  
+Mix 1&frac12; cups sugar, shortening, and eggs thoroughly.  
 Measure flour by dipping method (p.5) or by sifting.  
 Blend flour, cream of tartar, soda, and salt; stir in.  
 Shape dough in 1-inch balls.  

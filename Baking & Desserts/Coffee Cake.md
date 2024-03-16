@@ -7,10 +7,12 @@
 &frac12; cup flour  
 1 teaspoon baking soda  
 1 teaspoon baking powder  
+
 &frac12; cup butter  
 1 cup sugar  
 1 large egg, slightly beaten  
 1 teaspoon vanilla extract  
+
 1 cup sour cream  
 
 #### Topping

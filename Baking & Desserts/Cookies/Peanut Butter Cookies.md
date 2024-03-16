@@ -8,6 +8,7 @@
 1 teaspoon salt  
 1 tablespoon baking soda  
 2 teaspoons baking powder  
+
 1&frac12; cups vegetable shortening  
 1 18-ounce jar creamy peanut butter (generous 2 cups)  
 2&frac12; cups granulated sugar (divided)  

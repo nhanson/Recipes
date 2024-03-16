@@ -5,9 +5,9 @@
 1 teaspoon baking soda  
 1&frac12; teaspoons salt  
 
-1 cup shortening  
 &frac34; cups granulated sugar  
 &frac34; cups brown sugar, packed  
+1 cup shortening  
 &frac12; tablespoon vanilla extract  
 
 2 eggs  
@@ -16,7 +16,7 @@
 ## Instructions
 - Preheat oven to 375&deg;
 - Combine flour, baking soda and salt in a small bowl.
-- Beat shortening, granulated sugar, brown sugar and vanilla in a large mixing bowl.
+- Beat granulated sugar, brown sugar, shortening and vanilla in a large mixing bowl.
 - Add eggs one at a time, beating well after each addition.
 - Gradually beat in flour mixture.
 - Stir in chocolate chips.

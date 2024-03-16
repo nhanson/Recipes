@@ -6,6 +6,7 @@
 ## Ingredients
 7 to 7&frac12; cups all-purpose flour  
 2 packages active dry yeast  
+
 2 cups milk  
 &frac12; cup sugar  
 &frac12; cup shortening  
