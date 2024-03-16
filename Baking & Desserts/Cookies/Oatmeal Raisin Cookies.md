@@ -13,6 +13,7 @@
 1 tsp. salt  
 
 1 tsp. cinnamon  
+
 2 cups rolled oats  
 &frac12; cup chopped nuts  
 1 cup raisins  

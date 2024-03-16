@@ -25,7 +25,7 @@
 - Let stand for 2 minutes, remove to wire racks to cool completely.
 
 *Notes:*  
-*I always make a double batch, makes about 10 dozen:*  
+*I always make a double batch, makes about 5 dozen:*  
 *5 cups flour, 2 teaspoons baking soda, 3 teaspoons salt, 2 cups shortening, 1&frac12; cups granulated sugar, 1&frac12; cups brown sugar, 1 tablespoon vanilla extract, 4 eggs, 1&frac12; packages semisweet chocolate chips.*  
 
-### *Makes about 5 dozen cookies*
+### *Makes about 2&frac12; dozen cookies*
