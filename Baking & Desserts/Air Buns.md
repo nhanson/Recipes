@@ -6,13 +6,13 @@
 ## Ingredients
 1 pkg yeast  
 1 tsp sugar  
-&frac12; cups warm water (105 to 115&deg;)  
+&frac12; cups warm water (105-115&deg;)  
 
 &frac12; cup Crisco oil  
 4 eggs  
 1 Tbsp salt  
 &frac34; cup sugar  
-2&frac12; cups warm water (105 to 115&deg;)  
+2&frac12; cups warm water (105-115&deg;)  
 1 cup all-purpose flour  
 
 10 cups all-purpose flour  
