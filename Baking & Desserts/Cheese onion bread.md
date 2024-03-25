@@ -13,8 +13,8 @@ Place cubed cheese and onions on bread.
 Roll into log and chop with knife.  
 Place into 10-inch pie pan that has been greased and dusted with corn meal.  
 At this point, you can cover with plastic wrap and bake the next day.  
-Pre-heat oven to 450&deg;  
-Turn oven down to 375&deg; and bake 30-35 minutes or until golden brown.  
+Pre-heat oven to 450&deg;F (232&deg;C)  
+Turn oven down to 375&deg;F (191&deg;C) and bake 30-35 minutes or until golden brown.  
 EAT HOT!  
 
 ### *Makes 1 loaf*

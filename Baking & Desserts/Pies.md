@@ -23,8 +23,8 @@ Combine apples with the sugar, cinnamon, and salt.
 Turn into a 9-inch pie pan lined with pastry.  
 Dot the apples with butter and moisten the edge of the trimmed bottom crust.  
 Put on the top pastry, trim, and crimp the edge.  
-Bake in a 450&deg; oven 15 minutes.  
-Reduce the heat to 350&deg; and bake from 20 to 35 minutes longer.  
+Bake in a 450&deg;F (232&deg;C) oven 15 minutes.  
+Reduce the heat to 350&deg;F (177&deg;C) and bake from 20 to 35 minutes longer.  
 
 *Note: The length of time will depend upon the type of apples used. Summer apples, such as Transparents or Gravensteins, which should be used slightly green or underripe, will cook very quickly. It is best to leave a slit in the center of the pie crust so that the apples can be tested with a fork without disturbing the crust. If using very ripe apples or sweet apples, sprinkle with a tablespoon or two of lemon juice before adding the top crust.*  
 *Serve apple pie warm or cold, plain or with aged Cheddar cheese, a cheese sauce, or ice cream, which makes it "à la mode."*  
@@ -49,8 +49,8 @@ Sprinkle with a little lemon juice if they are of a sweet variety or seem a litt
 Turn into the pan and dot with butter.  
 Adjust the top crust in place and press against the moistened bottom dough to seal.  
 Cut slits or a design in the top to allow for the escape of steam, and crimp the edges.  
-Bake in a 450&deg; oven 15 minutes.  
-Reduce the heat to 350&deg;, and bake 25 to 40 minutes longer, depending upon the variety of apples used.  
+Bake in a 450&deg;F (232&deg;C) oven 15 minutes.  
+Reduce the heat to 350&deg;F (177&deg;C), and bake 25 to 40 minutes longer, depending upon the variety of apples used.  
 Serve hot or cold with cream, ice cream, or Cheddar cheese.  
 
 ## Berry Pies
@@ -72,7 +72,7 @@ Combine with the sugar, flour or tapioca, salt, and (if used) lemon juice.
 Turn into a pastry-lined pie pan and dot with butter.
 Trim the pastry edge and moisten it.
 Cover with the top pastry, trim the edge, crimp the top and bottom edges together, and cut vents for steam.
-Bake at 450&deg; 15 minutes, reduce the heat to 350&deg;, and bake 25 to 30 minutes longer.
+Bake at 450&deg;F (232&deg;C) 15 minutes, reduce the heat to 350&deg;F (177&deg;C), and bake 25 to 30 minutes longer.
 Cool on a rack.
 Berry pies are usually served cold, although they can be served slightly warm.
 They are especially popular topped with ice cream.

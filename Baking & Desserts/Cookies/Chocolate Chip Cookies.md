@@ -14,7 +14,7 @@
 &frac34; package semisweet chocolate chips (9 ounces)  
 
 ## Instructions
-- Preheat oven to 375&deg;
+- Preheat oven to 375&deg;F (191&deg;C)
 - Combine flour, baking soda and salt in a small bowl.
 - Beat granulated sugar, brown sugar, shortening and vanilla in a large mixing bowl.
 - Add eggs one at a time, beating well after each addition.

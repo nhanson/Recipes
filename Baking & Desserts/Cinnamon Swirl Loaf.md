@@ -19,7 +19,7 @@
 
 ## Instructions
 In large mixer bowl combine 3&frac12; cups of the flour and the yeast.  
-In saucepan heat milk, &frac12; cup sugar, shortening, and salt just till warm (115-120&deg;), stirring constantly to melt shortening.  
+In saucepan heat milk, &frac12; cup sugar, shortening, and salt just till warm (115-120&deg;F (46-49&deg;C)), stirring constantly to melt shortening.  
 Add to dry mixture in mixer bowl; add eggs.  
 Beat at low speed with electric mixer for 30 seconds, scraping sides of bowl constantly.  
 Beat 3 minutes at high speed.  
@@ -37,7 +37,7 @@ Roll dough up as for jelly roll, beginning with narrow side.
 Seal long edge and ends.  
 Place, sealed edge down, in 2 greased 9&times;5&times;3-inch loaf pans.  
 Cover and let rise in warm place till almost double (35 to 45 minutes).  
-Bake at 375&deg; till done, 35 to 40 minutes. (If crust browns too quickly, cover with foil last 15 minutes of baking.)  
+Bake at 375&deg;F (191&deg;C) till done, 35 to 40 minutes. (If crust browns too quickly, cover with foil last 15 minutes of baking.)  
 Remove bread from pans and cool on wire racks.  
 Drizzle with Confectioners' Icing.  
 

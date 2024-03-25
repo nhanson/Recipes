@@ -18,7 +18,7 @@ Salt
 Pepper  
 
 ## Instructions
-Preheat your oven to 425&deg;  
+Preheat your oven to 425&deg;F (218&deg;C)  
 Place a washed potato on your cutting board, and set a wooden spoon handle next to it, running along the length of the potato's base.  
 With a sharp knife, begin making thin (&frac18;-inch to &frac14;-inch) slices across the potato's width. As you cut downward, use the spoon's handle to act as your cutting guide so you don't slice down all the way through the potato. Prepare all 4 potatoes in this way.  
 Place the cut potatoes in a baking dish.  

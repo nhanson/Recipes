@@ -15,7 +15,7 @@
 2&frac12; cups (10.5 ounces) unbleached all-purpose flour  
 
 ## Instructions
-Preheat the oven to 350&deg;.  
+Preheat the oven to 350&deg;F (177&deg;C).  
 Lightly grease (or line with parchment) two baking sheets.  
 In a large bowl, cream together the sugars, butter, and oil until smooth and light-colored.  
 Beat in the egg, vanilla and almond extracts, salt, and baking powder.  

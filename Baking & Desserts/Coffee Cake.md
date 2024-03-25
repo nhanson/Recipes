@@ -32,7 +32,7 @@ Blend in sour cream, then remaining dry ingredients.
 Spread half of batter lightly into a 10-inch tube pan.  
 Sprinkle with half of topping and spread with remaining batter.  
 Sprinkle with remaining topping.  
-Bake at 350&deg; 40 to 45 minutes.  
+Bake at 350&deg;F (177&deg;C) 40 to 45 minutes.  
 
 #### Topping:
 Mix together flour, sugar, salt and nuts.  

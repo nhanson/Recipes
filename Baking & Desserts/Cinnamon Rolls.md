@@ -11,7 +11,7 @@
 
 ## Instructions
 Combine 1&frac12; cups flour and the yeast, set aside.  
-Heat and stir milk, sugar, butter and salt till warm (120-130&deg;) and butter almost melts. Add to flour mixture. Then add eggs. Mix well.  
+Heat and stir milk, sugar, butter and salt till warm (120-130&deg;F (49-54&deg;C)) and butter almost melts. Add to flour mixture. Then add eggs. Mix well.  
 Stir in as much of the remaining flour as you can.  
 On a floured surface, knead in the remaining flour to make a soft dough that is smooth and elastic (3-5 minutes).  
 Shape into a ball. Placed in a greased bowl, cover and let rise in a warm place till double (about 1 hour).  
@@ -25,7 +25,7 @@ Roll up jelly-roll style starting from the long side. Pinch seam to seal.
 Cut into 8 pieces, placing cut-side down in a well-buttered 9x13 pan.  
 Cover and let rise till nearly double (about 30 minutes) or cover with oiled wax paper, then plastic wrap, and refrigerate 2 to 24 hours.  
 If chilled, let stand, covered for 20 minutes at room temperature.  
-Bake at 375&deg; for 20 to 25 minutes.  
+Bake at 375&deg;F (191&deg;C) for 20 to 25 minutes.  
 Cool.  
 Drizzle with powdered sugar icing.  
 Serve warm or cool.  

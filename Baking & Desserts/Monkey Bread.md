@@ -13,7 +13,7 @@ Combine sugar, cinnamon, and coconut.
 Coat dough pieces with butter; then roll in sugar mixture.
 Place in well greased 9- or 12-cup bundt pan.
 Cover; let rise in warm place until light or doubled in size, 1&frac12; to 2 hours.
-Bake at 350&deg; for 35 to 40 minutes. Cool for 1 or 2 minutes; then loosen edges and carefully turn out onto serving plate.
+Bake at 350&deg;F (177&deg;C) for 35 to 40 minutes. Cool for 1 or 2 minutes; then loosen edges and carefully turn out onto serving plate.
 
 *Note:*  
 *Bread may be baked in 2 bread loaf pans or a tube pan with a solid bottom.*  

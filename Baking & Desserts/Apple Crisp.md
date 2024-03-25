@@ -12,7 +12,7 @@
 &frac34; teaspoon ground nutmeg  
 
 ## Instructions
-Heat oven to 375&deg;.  
+Heat oven to 375&deg;F (191&deg;C).  
 Grease 8&times;8&times;2-inch square pan.  
 Arrange apples in pan.  
 Mix remaining ingredients.  

@@ -1,14 +1,14 @@
 # Tea Guide
 There are many ways to make tea-none of them wrong-but here's a good guideline to get you started:
-| Tea Type         | Teaspoons | Temperature  | Steeping Time |
-| ---------------- | --------- | ------------ | ------------- |
-| Black            | 1         | 190-209&deg; | 3-5 minutes   |
-| Green            | 1-2       | 170-190&deg; | 1-3 minutes   |
-| Oolong           | 1-2       | 160-180&deg; | 1-3 minutes   |
-| White            | 2+        | 150-170&deg; | 1-2 minutes   |
-| Yellow           | 1-2       | 170-190&deg; | 1-3 minutes   |
-| Pu-erh           | 1-2       | 190-209&deg; | 2-5 minutes   |
-| Herbal Infusions | 1-2       | 190-209&deg; | 3-5 minutes   |
+| Tea Type         | Teaspoons | Temperature                 | Steeping Time |
+| ---------------- | --------- | --------------------------- | ------------- |
+| Black            | 1         | 190-209&deg;F (88-98&deg;C) | 3-5 minutes   |
+| Green            | 1-2       | 170-190&deg;F (77-88&deg;C) | 1-3 minutes   |
+| Oolong           | 1-2       | 160-180&deg;F (71-82&deg;C) | 1-3 minutes   |
+| White            | 2+        | 150-170&deg;F (66-77&deg;C) | 1-2 minutes   |
+| Yellow           | 1-2       | 170-190&deg;F (77-88&deg;C) | 1-3 minutes   |
+| Pu-erh           | 1-2       | 190-209&deg;F (88-98&deg;C) | 2-5 minutes   |
+| Herbal Infusions | 1-2       | 190-209&deg;F (88-98&deg;C) | 3-5 minutes   |
 
 Tips:
 - To make a tea stronger, don't sleep it for longer, as that will usually make it bitter. Add more leaves instead!

@@ -19,7 +19,7 @@
 &frac14; cup granulated sugar  
 
 ## Instructions
-Preheat the oven to 375&deg;.  
+Preheat the oven to 375&deg;F (191&deg;C).  
 In a large mixing bowl, whisk together the flour, salt, baking soda and baking powder, set aside.  
 In a mixer bowl, beat the shortening briefly, then gradually beat in the peanut butter, then 2 cups of granulated sugar and the brown sugar. Blend well.  
 Add the beaten eggs a bit at a time, then add the vanilla.  

@@ -21,7 +21,7 @@ Measure flour by dipping method *(p.5)* or by sifting.
 Stir flour, baking powder, and salt into oil mixture.  
 Chill several hours or overnight.  
 
-Heat oven to 350&deg;.  
+Heat oven to 350&deg;F (177&deg;C).  
 Drop teaspoonfuls of dough into confectioners' sugar.  
 Roll in sugar; shape into balls.  
 Place about 2 inches apart on greased baking sheet.  

@@ -16,4 +16,4 @@ Stir in corn meal.
 Add eggs, milk and oil.  
 Beat with egg beater till smooth, about 1 minute. DO NOT OVER MIX!!!  
 Pour batter into a HOT oiled iron skillet (9- or 10-inch).  
-Bake at 425&deg; for 20 to 25 minutes.  
+Bake at 425&deg;F (218&deg;C) for 20 to 25 minutes.  

@@ -19,7 +19,7 @@
 1 cup raisins  
 
 ## Instructions
-Heat oven to 400&deg; (mod. hot).  
+Heat oven to 400&deg;F (204&deg;C) (mod. hot).  
 Mix sugar, shortening, eggs, and molasses thoroughly.  
 Measure flour by dipping method (p.5) or by sifting.  
 Stir dry ingredients together; blend in. *Be sure to mix by hand - all dry ingredients. Mixer is not good*  

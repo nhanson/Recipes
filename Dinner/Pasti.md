@@ -24,7 +24,7 @@ Chop the onions fine and dice the meat and peeled potatoes.
 Starting with meat, place alternate layers of meat, potatoes and onions on half of a pastry circle.  
 Salt and pepper to taste and top with bits of butter.  
 Fold the other half of crust on top, then roll and seal the edges together so that the steam does not escape. Repeat with remaining circles.  
-Bake at 400&deg;F for 10 minutes and then at 350&deg;F for 50 minutes or until meat is tender and crust is brown.  
+Bake at 400&deg;F (204&deg;C)F for 10 minutes and then at 350&deg;F (177&deg;C)F for 50 minutes or until meat is tender and crust is brown.  
 If using leftover roast instead of raw meat, sprinkle the filling with 1 tbsp of water before folding the crust over.  
 
 *Pastis are often eaten cold.*  

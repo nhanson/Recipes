@@ -11,7 +11,7 @@
 1 cup (4 ounces) shredded Colby-Monterey Jack or Cheddar cheese  
 
 ## Instructions
-Heat oven to 400&deg;.  
+Heat oven to 400&deg;F (204&deg;C).  
 Grease 10&times;12-inch glass pie plate.  
 Cook ground beef and onion in 10-inch skillet over medium heat, stirring occasionally, until beef is brown; drain.  
 Stir in seasoning mix (dry).  

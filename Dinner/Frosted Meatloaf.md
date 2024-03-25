@@ -21,7 +21,7 @@ Sliced tomato, olives, mushrooms, pimiento, or parsley as desired
 ## Instructions
 Combine meat, French dressing, bread crumbs, onion, eggs, salt, pepper, and garlic flakes.
 Mix well and shape into an oval loaf in a shallow baking dish.
-Bake at 350&deg; for 1 hour.
+Bake at 350&deg;F (177&deg;C) for 1 hour.
 Remove from oven and place on baking sheet or heat-proof serving platter.
 Combine potatoes, egg, mayonnaise, salt, pepper, and cheese, and frost the meatloaf.
 Broil until potato topping is golden brown and puffy!

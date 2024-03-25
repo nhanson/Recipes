@@ -18,7 +18,7 @@
 4 cups powdered sugar  
 
 ## Instructions
-Preheat oven to 350&deg;.  
+Preheat oven to 350&deg;F (177&deg;C).  
 In a large bowl, beat butter until creamy.  
 Add powdered sugar and mix until light and fluffy.  
 Add lemon zest and vanilla extract, beat well.  

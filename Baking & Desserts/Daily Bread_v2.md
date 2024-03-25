@@ -25,7 +25,7 @@ Punch down and let rise an additional 30 minutes.
 Punch down and divide into two portions.  
 Form into 2 french bread loaves.  
 Let rise for 30 minutes on parchment paper lined baking sheet.  
-Heat oven 425&deg;. If you have a baking stone, this works best.  
+Heat oven 425&deg;F (218&deg;C). If you have a baking stone, this works best.  
 Slash the tops of the loaves with a razor, 3 times.  
 Slide the parchment paper, with the French loaves onto the stone.  
 Bake for 25 to 30 minutes, until golden brown.  

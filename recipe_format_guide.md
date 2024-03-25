@@ -15,7 +15,7 @@ Ingredient d
 
 ## Instructions
 Instruction a  
-Oven to 375&deg;  
+Oven to 375&deg;F (191&deg;C)  
 In a 3&times;3-inch pan
 
 #### Sub instructions

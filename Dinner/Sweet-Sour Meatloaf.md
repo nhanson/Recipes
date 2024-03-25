@@ -19,7 +19,7 @@
 Mix tomato sauce, brown sugar, vinegar and mustard until thoroughly blended and set aside.  
 Combine remaining ingredients in large mixing bowl.  
 Mix 1 cup of sauce into meat mixture.  
-Bake at 350&deg; for 30 minutes.  
+Bake at 350&deg;F (177&deg;C) for 30 minutes.  
 Baste with 1 cup of sauce.  
 Bake for another 30 minutes (maybe a little longer).  
 Heat remaining sauce and pour over meat loaf at serving time.  

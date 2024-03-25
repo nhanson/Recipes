@@ -13,7 +13,7 @@
 1 cup milk  
 
 ## Instructions
-Position a rack in the center of the oven and preheat the oven to 475&deg;.
+Position a rack in the center of the oven and preheat the oven to 475&deg;F (246&deg;C).
 Grease a 9&times;12-inch baking pan and set it aside.
 
 #### Mixing the Dough
@@ -38,6 +38,6 @@ Bake the biscuits for 12 to 15 minutes, or until they are golden on top.
 Serve them warm.  
 
 #### Storing
-Biscuits are best just out of the oven, but they can be kept covered at room temperature for a few hours and warmed for about 5 minutes in a 350&deg; oven before serving.
+Biscuits are best just out of the oven, but they can be kept covered at room temperature for a few hours and warmed for about 5 minutes in a 350&deg;F (177&deg;C) oven before serving.
 
 ### *Makes about 14 biscuits*

@@ -14,7 +14,7 @@ Meanwhile, for cheese sauce, in a saucepan, melt butter; stir in flour and peppe
 Add milk all at once. Cook and stir till slightly thickened and bubbly.  
 Add shredded cheese; stir until melted.  
 Layer sliced potatoes with cheese sauce into lasagna pan.  
-Bake COVERED in 350&deg; oven for at least one hour (or more, if needed), until hot and bubbly in the   middle.  
+Bake COVERED in 350&deg;F (177&deg;C) oven for at least one hour (or more, if needed), until hot and bubbly in the   middle.  
 Remove lid/foil for the last 10 minutes or so to brown the top.  
 
 ### *Makes about 20 servings (measurements for large lasagna pan)*

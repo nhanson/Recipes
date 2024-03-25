@@ -16,7 +16,7 @@
 2 teaspoon cinnamon  
 
 ## Instructions
-Heat oven to 400&deg;.  
+Heat oven to 400&deg;F (204&deg;C).  
 Mix 1&frac12; cups sugar, shortening, and eggs thoroughly.  
 Measure flour by dipping method (p.5) or by sifting.  
 Blend flour, cream of tartar, soda, and salt; stir in.  

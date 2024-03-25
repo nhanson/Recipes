@@ -9,7 +9,7 @@
 Chopped cilantro  
 
 ## Instructions
-Preheat oven to 375&deg;.  
+Preheat oven to 375&deg;F (191&deg;C).  
 Combine beans and spread in bottom of 8-inch square baking dish.  
 Spread sour cream over beans, top with salsa and cheese.  
 Cover with foil, bake for 20 min.  

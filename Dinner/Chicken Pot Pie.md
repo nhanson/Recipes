@@ -15,7 +15,7 @@ Salt
 1 recipe [Basic Pastry](../Extras/Flaky%20Pie%20Dough.md) for 9-inch shell  
 
 ## Instructions
-Preheat the oven to 425&deg;.  
+Preheat the oven to 425&deg;F (218&deg;C).  
 Melt the butter in a saucepan, stir in the flour, and cook, stirring, for 2 minutes.  
 Slowly add the broth, cream, pepper, and salt to taste.  
 Cook for 5 minutes, until thickened and smooth.  
@@ -27,6 +27,6 @@ Bake for 25–30 minutes, or until the crust is nicely browned.
 ### Chicken Pie Country Style
 Use 1 recipe [Baking Powder Biscuits](../Baking%20%26%20Desserts/Baking%20Powder%20Biscuits.md) instead of Basic Pastry.  
 Roll out the biscuit dough 5-inch thick, cut in 2-inch rounds, and place them, edges touching, all over the top of the pie.  
-Bake at 450&deg; for 15-20 minutes, until browned.  
+Bake at 450&deg;F (232&deg;C) for 15-20 minutes, until browned.  
 
 ### *Serves six*

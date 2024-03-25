@@ -7,7 +7,7 @@
 4 medium potatoes, sliced (peeled or not) into bite-size pieces  
 
 ## Instructions
-Preheat the oven to 350&deg;.  
+Preheat the oven to 350&deg;F (177&deg;C).  
 Spray a casserole dish with nonstick spray.  
 Place the chicken in the casserole dish and cover with the Italian dressing.  
 Top with the onion and potatoes.  

@@ -2,7 +2,7 @@
 
 ## Ingredients
 2 packages active dry yeast  
-&frac12; cup warm water (110&deg;)  
+&frac12; cup warm water (110&deg;F (43&deg;C))  
 
 &frac12; cup raisins  
 &frac14; cup sugar  
@@ -29,7 +29,7 @@ Punch down; divide in half.
 Cover; let rest 10 minutes.  
 Shape into 2 loaves; place in 2 greased 7&frac12;&times;3&frac12;&times;2-inch loaf pans.  
 Cover; let rise till double (about 30 minutes).  
-Bake at 375&deg; for 25 to 30 minutes. (If browning too fast, cover with foil last 10 minutes.)  
+Bake at 375&deg;F (191&deg;C) for 25 to 30 minutes. (If browning too fast, cover with foil last 10 minutes.)  
 Remove from pans; cool.  
 Frost with Confectioners' Icing (see tip above).  
 

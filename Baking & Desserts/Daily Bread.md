@@ -12,7 +12,7 @@
 3 teaspoons kosher salt  
 
 ## Instructions
-In a large mixing bowl, stir together 2 cups of warm water (120-130&deg;), yeast, sugar and 1 cup flour.  
+In a large mixing bowl, stir together 2 cups of warm water (120-130&deg;F (49-54&deg;C)), yeast, sugar and 1 cup flour.  
 Let sit 15 minutes.  
 If the yeast doesn't activate, you have to throw this out and start over, although this rarely happens.  
 With a wooden spoon, bread cutter or your hands, mix in the olive oil, wheat germ and 3 cups flour.  
@@ -29,7 +29,7 @@ With the long side of the rectangle facing toward you, grasp the upper corners o
 Fold down the peak to the center seam. Press the entire seam to seal it, pushing it away from you.  
 Roll down the top edge of the dough, pushing it down and away from you as you go, until you reach the bottom edge.  
 Press along the length of the seam and roll it forward so that the seam is undemeath. Repeat with the second portion of dough.  
-Heat oven to 475&deg;, with an inverted baking sheet on the middle rack.  
+Heat oven to 475&deg;F (246&deg;C), with an inverted baking sheet on the middle rack.  
 Cover the shaped batards with plastic wrap lightly coated with oil (or vegetable oil spray).  
 Let rise for hour on a parchment paper-lined baking sheet.  
 Dust the loaves with flour and slash with a razor or bread knife.  

@@ -14,7 +14,7 @@
 
 ## Instructions
 
-Preheat oven to 350&deg;  
+Preheat oven to 350&deg;F (177&deg;C)  
 In a large mixer bowl combine *1 cup* of the flour, the sugar, baking powder, baking soda, and salt.  
 Add mashed banana; shortening, margarine or, butter; and milk.  
 Beat with an electric mixer on low speed till blended, then on high speed for 2 minutes.  
