@@ -1,7 +1,7 @@
 # Banana Bread
 
 ## Ingredients
-1&frac14; cups all-purpose flour  
+1&frac34; cups all-purpose flour  
 &frac23; cup sugar  
 2 teaspoons baking powder  
 &frac12; teaspoon baking soda  
